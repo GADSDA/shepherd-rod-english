@@ -1,62 +1,52 @@
-.
-
- -- {whr 1}   
-  
-  **THE WHITE-HOUSE RECRUITER**
+**THE WHITE-HOUSE RECRUITER**
+=============================
 
 A-Bombs, Flying Saucers, World War III
+--------------------------------------
 
-–––––––––-0––––––––-
+### A Post For Every Ministerial Graduate
 
-A Post For Every Ministerial Graduate
+##### _By V. H. Jezreel, H.B._
 
-By V. H. Jezreel, H.B.
+ Never did the clouds of war, so strange and so dark, hang in an angry thunder-head over the world, and never did the world see itself as it does today. Everywhere, –in government, in industry, in halls of learning, in churches, in homes, on the streets–in every walk of life, the question uppermost is, Whitherbound mankind?
 
-Never did the clouds of war, so strange and so dark, hang in an angry thunder-head over the world, and never did the world see itself as it does today. Everywhere, –in government, in industry, in halls of learning, in churches, in homes, on the streets–in every walk of life, the question uppermost is, Whitherbound mankind?
+ From pre-eminent scientific and journalistic spokesmen come such representative utterances as these:
 
-From pre-eminent scientific and journalistic spokesmen come such representative utterances as these:
+ “…What is the story of Man? It is that men die, Man survives. Now men are measurably nearer the most terrible of all the climaxes they have brought upon themselves in their long history of struggle. If the climax comes it will change life and change the world. But it will not end life, it will not destroy the world. In this utmost climax, or perhaps in its prospect, men may at last find the secret of peace and the way to live without destruction. That is a hope. The certainty is that Man will be on earth, making a world.” – _Life_, Oct. 3, 1949, p. 22.
 
-“…What is the story of Man? It is that men die, Man survives. Now men are measurably nearer the most terrible of all the climaxes they have brought upon themselves in their long history of struggle. If the climax comes it will change life and change the world. But it will not end life, it will not destroy the world. In this utmost climax, or perhaps in its prospect, men may at last find the secret of peace and the way to live without destruction. That is a hope. The certainty is that Man will be on earth, making a world.” – _Life_, Oct. 3, 1949, p. 22.
-
-“…Einstein…agrees…that other nations can rediscover our secret processes by themselves; that no military defense can be expected and preparedness is futile, that if another war breaks out, atom bombs will
+“…Einstein…agrees…that other nations can rediscover our secret processes by themselves; that no military defense can be expected and preparedness is futile, that if another war breaks out, atom bombs will surely destroy civilization…
 
  -- {whr 3}   
   
-  surely destroy civilization…
+   “‘It is important,’ he went on to say, ‘to enlighten public opinion on the real situation about the bomb. Only the prevention of war by action on an international scale, which will make preparation for war unnecessary and even impossible, can save us from its consequences.’“ – _Newsweek_, March 10 1947, p. 58.
 
-“‘It is important,’ he went on to say, ‘to enlighten public opinion on the real situation about the bomb. Only the prevention of war by action on an international scale, which will make preparation for war unnecessary and even impossible, can save us from its consequences.’“ – _Newsweek_, March 10 1947, p. 58.
+ “…History, in large areas of the world, has been rolled back. Fanaticism has replaced reason; terror, compromise; hate, friendship. Science, education, and philosophy, the vehicles of progress to Western man, have been perverted, distorted and retooled into weapons against civilization.” – John Edgar Hoover, in a report sent out by the Federal Bureau of Investigation.
 
-“…History, in large areas of the world, has been rolled back. Fanaticism has replaced reason; terror, compromise; hate, friendship. Science, education, and philosophy, the vehicles of progress to Western man, have been perverted, distorted and retooled into weapons against civilization.” – John Edgar Hoover, in a report sent out by the Federal Bureau of Investigation.
+ “The First World War was a decided shock to the earlier period of optimism,… Today the shock is almost incredibly greater. Insecurity and strife are so general that the prevailing attitude is one of anxious and pessimistic uncertainty.” – John Dewey, _Reconstruction in Philosophy_, p. 8.
 
-“The First World War was a decided shock to the earlier period of optimism,… Today the shock is almost incredibly greater. Insecurity and strife are so general that the prevailing attitude is one of anxious and pessimistic uncertainty.” – John Dewey, _Reconstruction in Philosophy_, p. 8.
+ “There is only too much reason to fear that Western civilization, if not the whole world, is likely in the near future to go through a period of immense sorrow and suffering and pain…” – Bertrand Russel on the subject, “If We Are To Survive This Dark Time,” in the New York TIMES magazine, September 3, 1950.
 
-“There is only too much reason to fear that Western civilization, if not the whole world, is likely in the near future to go through a period of immense sorrow and suffering and pain…” – Bertrand Russel on the subject, “If We Are To Survive This Dark Time,” in the New York TIMES magazine, September 3, 1950.
-
-“We have now arrived at the ultimate stage in history. What is ultimately required of us is required of us now… It is very late. Perhaps nothing can save us. But
+ “We have now arrived at the ultimate stage in history. What is ultimately required of us is required of us now… It is very late. Perhaps nothing can save us. But the handwriting on the wall is plain enough. It says to the people of earth, ‘Unite or die.’” – Dr. Robert M. Hutchins.
 
  -- {whr 4}   
   
-  the handwriting on the wall is plain enough. It says to the people of earth, ‘Unite or die.’” – Dr. Robert M. Hutchins.
+   “Everyone is agreed that an atomic war is world suicide, that no one can win. No scientist of repute doubts the fact that every country with an industrial capacity will have the atomic bomb in five years. We therefore have just five years to build for peace.” – Dr. Robert M. Hutchins, Chancellor of Chicago University, in _Chicago Daily Tribune_, March 26, 1946.
 
-“Everyone is agreed that an atomic war is world suicide, that no one can win. No scientist of repute doubts the fact that every country with an industrial capacity will have the atomic bomb in five years. We therefore have just five years to build for peace.” – Dr. Robert M. Hutchins, Chancellor of Chicago University, in _Chicago Daily Tribune_, March 26, 1946.
+ “There can be no doubt about the world crisis. We are living at one of those turning points of history which offers two roads, one of which leads to death and the other to life.
 
-“There can be no doubt about the world crisis. We are living at one of those turning points of history which offers two roads, one of which leads to death and the other to life.
+ “The fact is, the H-bomb represents mankind’s final suicide triumph, the unlocking of the inmost secrets of nature for purposes of total destruction. It brings into absolute focus the failure of a materialistic civilization which has sought to organize its life apart from God.” – G. Ashton Oldham, formerly bishop of the Episcopal Diocese of Albany, on “The World Crisis and the Future,” in the bulletin of the Church Peace Union for June.
 
-“The fact is, the H-bomb represents mankind’s final suicide triumph, the unlocking of the inmost secrets of nature for purposes of total destruction. It brings into absolute focus the failure of a materialistic civilization which has sought to organize its life apart from God.” – G. Ashton Oldham, formerly bishop of the Episcopal Diocese of Albany, on “The World Crisis and the Future,” in the bulletin of the Church Peace Union for June.
+ “People are discovering a frightful queerness has come into life, even unobservant people are betraying, by fits and starts, a certain wonder, a shrinking, fugitive sense that something is happening so that life will never quite be the same.
 
-“People are discovering a frightful queerness has come into life, even unobservant people are betraying, by fits and starts, a certain wonder, a shrinking, fugitive sense that something is happening so that life will never quite be the same.
-
-“Spread out and examine the pattern of events and you will find yourself face to face with a new scheme of
+ “Spread out and examine the pattern of events and you will find yourself face to face with a new scheme of being hitherto unimaginable by the human mind….
 
  -- {whr 5}   
   
-  being hitherto unimaginable by the human mind….
+   “Writers are convinced there is no way out, around or through the impasse. It’s the end.” – H.G. Wells, _Los Angeles Examiner_, October 21, 1945.
 
-“Writers are convinced there is no way out, around or through the impasse. It’s the end.” – H.G. Wells, _Los Angeles Examiner_, October 21, 1945.
+ In the thoughtfully considered opinion of these eminent on-the-scene observers, this generation is at the zero hour of civilization. Whether we realize it or not, the day of doom is shortening its shadow, and we are face to face with the most momentous issues ever to confront a generation of men. Atomic warheads, lethal rockets, poison gas bacterial bombs, supersubmarines boring through the mighty deeps, and supersonic aircraft stabbing through space above, – what mean these and other dread devices of destruction? What do these signs of the times portend for the Church and for all the world? Had the question flung itself at any generation in the days of God’s ancient prophets, then beyond doubt they would have answered: “As the Church lives, and as it is certain that God lives it would be impossible that He leave His people in darkness concerning the signs of their times.” And their answer must certainly be our answer, too. Moreover it is a self-evident fact that if we want to know, God will enable us to know the true meaning of these unprecedentedly destructive things.
 
-In the thoughtfully considered opinion of these eminent on-the-scene observers, this generation is at the zero hour of civilization. Whether we realize it or not, the day of doom is shortening its shadow, and we are face to face with the most momentous issues ever to confront a generation of men. Atomic warheads, lethal rockets, poison gas bacterial bombs, supersubmarines boring through the mighty deeps, and supersonic aircraft stabbing through space above, – what mean these and other dread devices of destruction? What do these signs of the times portend for the Church and for all the world? Had the question flung itself at any generation in the days of God’s ancient prophets, then beyond doubt they would have answered: “As the Church lives, and as it is certain that God lives it would be impossible that He leave His people in darkness concerning the signs of their times.” And their answer must certainly be our answer, too. Moreover it is a self-evident fact that if we want to know, God will enable us to know the true meaning of these unprecedentedly destructive things.
-
-From the outset this much is clearly manifest: If the super-bombs, superbombers, and superall import nothing else, they without question threaten civilization. A faint idea of the devastating and demoralizing consequences of their use is to be gained from the scene of aerial destruction depicted on the cover page.
+ From the outset this much is clearly manifest: If the super-bombs, superbombers, and superall import nothing else, they without question threaten civilization. A faint idea of the devastating and demoralizing consequences of their use is to be gained from the scene of aerial destruction depicted on the cover page.
 
  -- {whr 6}   
   
